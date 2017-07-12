@@ -20,3 +20,4 @@ Here collects the past exams of TOEFL on Reading, Listening, Speaking, and Writi
 ## Writing
 
 ## Other references
+[考試規則](http://www.tlctoefl.tw/toefl_3.html)
