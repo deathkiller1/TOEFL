@@ -4,7 +4,8 @@ Here collects the past exams of TOEFL on Reading, Listening, Speaking, and Writi
 
 
 ## Vocabulary
-
+[Ultimate TOEFL Vocabulary List: The 327 Best Words to Know](https://www.prepscholar.com/toefl/blog/toefl-vocabulary-list/)
+[Ultimate TOEFL Vocabulary List @ Quizlet](https://quizlet.com/215764471/ultimate-toefl-vocabulary-list-flash-cards/)
 
 ## Reading
 
