@@ -14,8 +14,11 @@ Here collects the past exams of TOEFL on Reading, Listening, Speaking, and Writi
 
 
 ## Speaking
+[TOEFL Speaking Question Details](http://www.examenglish.com/TOEFL/toefl_speaking.html)
 [托福口說高分模板](http://sweetnatured.pixnet.net/blog/post/62046592-toefl-speaking-托福口說高分模板)
 [托福Speaking 18分→26分經驗分享](https://www.cantabenglish.com/blog/speaking-18-26)
+[Magoosh TOEFL Speaking Practice Questions With Answers](https://magoosh.com/toefl/2015/toefl-speaking-practice-questions-with-answers-pdf/)
+[TOEFL Practice Section 3: Speaking](https://www.englishclub.com/esl-exams/ets-toefl-practice-speaking.htm)
 
 
 ## Writing
