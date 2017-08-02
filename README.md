@@ -23,6 +23,15 @@ Here collects the past exams of TOEFL on Reading, Listening, Speaking, and Writi
 
 
 ## Writing
+[First/Firstly/At first](http://dictionary.cambridge.org/grammar/british-grammar/first-firstly-or-at-first)  
+[硬氣吵架攻略，再也不會後悔當時沒這麼反駁](http://ke.kmf.com/send/see?id=1405)  
+[Commas with Prepositional Phrases](https://www.englishgrammar101.com/module-6/prepositions/lesson-11/commas-with-prepositional-phrases)  
+
+## Total
+[時間的介系詞用法(in/on/at)](http://www.5minuteenglish.com/mar18.htm)  
+[常見英文錯誤](https://www.italki.com/article/1079/中国学生学英语的一些常见错误)  
+[2015/05/30 TOEFL分析](http://group.langlib.com/Thread/Detail/0263-1017958)  
 
 ## Other references
 [考試規則](http://www.tlctoefl.tw/toefl_3.html)  
+
